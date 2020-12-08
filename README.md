@@ -10,9 +10,9 @@ Work in collaborative teams, strengthening teamwork, motivation and the constant
 
 You can know more about me in:
 
-[Website](https://www.estebandg.com).
-[Linkedin](https://www.linkedin.com/in/edegenaro)
-[Twitter](https://twitter.com/SoyEstebanDG)
-[Instagram](https://www.instagram.com/ehdegenaro)
+✔️ [Website](https://www.estebandg.com)
+✔️ [Linkedin](https://www.linkedin.com/in/edegenaro)
+✔️ [Twitter](https://twitter.com/SoyEstebanDG)
+✔️ [Instagram](https://www.instagram.com/ehdegenaro)
 
-Or write to me iam@estebandg.com 💬 
+Or write me by [Email](mailto:esteban@pensa.la) 💬 
